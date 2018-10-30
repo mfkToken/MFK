@@ -1,1 +1,10 @@
-mfkToken
+#mfkToken
+
+mfkToken wallet with high security, 256-bit encryption algorithm, a versatile light wallet, can store Bitcoin, EOS, Ethereum, Litecoin, Monroe, Ripple, and all tokens based on distribution More than 100 kinds of encrypted digital currency, MFK token official website popular crowdfunding, crowdfunding ended on the exchange of fire coins, currency security and other exchanges.
+1. The technical team has a German team, the founder of the Germans,
+2. Roadshows in Cyprus and Germany, following the white paper timeline, followed by roadshows in Japan, Korea, Russia, Singapore, Vietnam
+3. Based on the Ethereum release, you can enter mfk in the Ethereum official website to query every transaction, open, transparent, https://etherscan.io
+4. The telegraph group is now 50,000. The WeChat mfk eco-community has been established. Twitter and Facebook regularly update the progress of the project. Linkedln LinkedIn can query the team's founder's technical resume information, GitHub has open source code.
+5.mfktoken wallet, support digital currency storage, charge currency, no network, high security with 256-bit encryption algorithm, customers need to copy mnemonics and passwords, bitcoin, ETH, EOS...100 kinds Currency conversion, instant messaging function, financial management function, purchase insurance function, mfkToken will launch the world's first digital currency credit card, launch the self-developed encrypted digital currency MFKX-POS scan code gun, launch the world's first support digital currency payment ~ e-commerce Platform mfkshopping see white paper
+6. The raised funds are mainly used for mfkToken R&D and promotion, offline global cooperation merchant MFKX-POS encryption scan code payment ecological application promotion, online mfkshopping merchant recruitment.
+7. Expected income: mfkToken wallet charge coin handling fee + currency exchange fee + wealth management income (crypto currency exchange into mfk purchase wealth management), MFKX-POS scan code payment fee + digital currency credit card interest income, insurance income (encryption) Currency exchange into mfk to buy insurance). 20% of the profit is used for mfktoken scan code payment discount, mfktoken usage increases, the mfk value of the holder's hands rises, the exchange value continues to increase, and the holder can realize the exchange.
